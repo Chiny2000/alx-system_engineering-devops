@@ -1,1 +1,1 @@
-We are all stack in this
+network configuration
